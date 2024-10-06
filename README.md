@@ -1,0 +1,1 @@
+# 9sinif-kimya-tam-anlatim-kitabi-2024-2025
